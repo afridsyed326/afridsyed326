@@ -1,6 +1,6 @@
 <div align="center">
   <h1 align="center">SM Afrid</h1>
-  <p>afridsyed326@gmail.com 01839688665</p>
+  <p>afridsyed326@gmail.com +971 561842319</p>
 
 
 </div>
